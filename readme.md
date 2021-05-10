@@ -2,6 +2,6 @@
 #hello
 
 
-#ur mom gay
+#hey
 
 
